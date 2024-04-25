@@ -19,3 +19,8 @@
 
 
 ![https://github.com/tmzapee21](https://pbs.twimg.com/media/GJUvFGGWkAA7G06.jpg)
+
+
+### Lenguajes Aprendidos
+
+![https://github.com/tmzapee21](https://blog.facialix.com/wp-content/uploads/2022/02/Blog210219_2.jpg)
